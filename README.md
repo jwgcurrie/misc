@@ -3,6 +3,8 @@ You will be tested either alongside another participant or a robot. You will be 
 # Requirements:
 You must be between 18-49 years of age.
 You must have normal vision or corrected-to-normal (you have had eye surgery or use glasses/contacts such that your vision has been corrected to normal).
+# Where:
+The experiment will take place in the William Guild Building at the University of Aberdeen. Exact details will be provided once you are confirmed.
 # Date:
 January 15th 2024 Onwards:
 # Contact Details:
