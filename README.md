@@ -9,6 +9,7 @@ You must have normal vision or corrected-to-normal (you have had eye surgery or 
 # Where:
 The experiment will take place in the William Guild Building at the University of Aberdeen, AB24 3UB. Exact details will be provided once you are confirmed to participate.
 # Date:
-May 2024 Onwards:
+May 2024 Onwards, sessions available Monday and Tuesday 9:00 - 17:00 
 # Contact Details:
+This experiment is conducted by Joel Currie and Professor Patric Bach.
 Please email j.currie.22@abdn.ac.uk if you wish to participate. 
